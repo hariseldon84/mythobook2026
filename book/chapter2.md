@@ -106,7 +106,7 @@ The guards leveled their spears. "LAUGH!"
 
 Vikarna crossed his arms, looking intensely bored. "Is this about my lack of armor, Eldest Brother? Because it chafes my nipples, and I explicitly filed a medical exemption yesterday."
 
-"No, this is about the profound, deeply embedded violations of the *Kuru Code of Tournaments and Ethical Exhibitions, Sub-Clause 14, Paragraph C!*" Yudhishthira countered, unrolling a massively long scroll. 
+"No, this is about the profound, deeply embedded violations of the *Kuru Code of Tournaments and Ethical Exhibitions, Sub-Clause 14, ParagraBph C!*" Yudhishthira countered, unrolling a massively long scroll. 
 
 "Oh gods, he brought the rulebook," an aristocratic woman behind me groaned, burying her face in her hands. 
 
@@ -134,7 +134,15 @@ To the side of the royal balcony, Guru Dronacharya let out a massive, wet burp t
 
 The massive drums played a deeply unenthusiastic *badum-tish* beat. The crowd groaned in unanimous disappointment, throwing half-eaten ancient snacks toward the fighting pit. Vikarna merely shrugged, gave Yudhishthira a smug little wave, and headed back up the tunnel. 
 
-I sank lower into my seat, praying for invisibility. Yudhishthira glared at my jeans one final time before gathering his scrolls and storming off in righteous indignation. 
+I sank lower into my seat, praying for invisibility. Yudhishthira glared at my jeans one final time before gathering his scrolls and aggressively storming up the steps into our VIP box. He dropped onto a cushion right next to Bhima, looking intensely displeased. 
+
+"Oye, accountant!" Bhima immediately started roasting him in Punjabi. "Ki haal hai? Jeet leya bada yudh tu scrolls naal? Paper cut na lag jaye tainu!" *(Hey accountant! How are you? Won a great war with your scrolls? Don't get a paper cut!)*
+
+Arjuna smirked, leaning over. "I hear the enemy ink-pots were particularly vicious today, Bhrata Yudhishthira. Your bravery against the filing cabinets will be sung about for generations."
+
+Yudhishthira merely adjusted his rudraksha beads and replied politely, completely ignoring the sarcasm. "Thank you, brothers. Peace is the highest victory. I am glad you recognize the strength of my non-violent ethical stand." 
+
+Bhima and Arjuna both groaned. 
 
 "Well," Vikarna sighed, dropping back onto the cushions next to me a minute later. "That was exhausting. Peasant, pass me those grapes."
 
@@ -196,6 +204,10 @@ Shakuni raised his hands in victory. "I declare myself the winner!"
 
 "That doesn't even mean anything!" Arjuna screamed. 
 
+Up in the VIP box, Yudhishthira leaned over to Bhima, looking highly impressed with the legal loophole. "You know, Bhrata Bhima, Uncle Shakuni is absolutely right. Technically speaking, Arjuna's first shot was an unreported misfire, which constitutes a severe breach of protocol. Shakuni’s localized proximity strike fulfills the base criteria of Section 9. As per the code, he is the rightful winner."
+
+"Oh, shut up, Yudhishthira!" Bhima snapped, throwing a handful of peanuts at him in frustration. 
+
 "Look at the data, Arjuna! The data doesn't lie!" Shakuni cackled. 
 
 Arjuna let out a primal scream of pure, undiluted frustration. He spun around, didn't bother planting his feet, didn't bother breathing, and savagely ripped his bowstring back. Without aiming, he fired. 
@@ -247,3 +259,211 @@ Vikarna, having strolled back up from his 'draw' against Yudhishthira, casually 
 "I am *Vikarna*," the prince corrected strictly, glaring at me through the smoke of his pipe. "Never confuse me with Karna. Not even phonetically. Though I will say, my elder brother Duryodhana likes him because he actually gets stuff done. And he knows some... other secrets. But that's above your paygrade, peasant."
 
 Vikarna sighed and packed away his clay pipe. "Now brace yourself. You haven't even seen my father try to do his closing stand-up comedy yet."
+
+# Chapter 2: The HR Department of Kurukshetra (Part 2)
+
+If the archery combat was a bureaucratic nightmare, the tournament’s closing ceremony was a masterclass in hostagesque comedic terror. 
+
+King Dhritarashtra, still wearing his excessively heavy gold crown, was led back to the edge of the royal balcony. He raised his hands, and once again, the sheer acoustic magic of the stadium amplified his booming voice to deafening levels. 
+
+"Citizens! A glorious display of martial arts!" Dhritarashtra yelled. "But before we dismiss this grand assembly, I have prepared some concluding thoughts. Or rather... concluding *jokes*!" 
+
+A collective, silent shudder ripped through the stadium. It was the physical manifestation of twenty thousand people mentally preparing for torture. The guards on the ground floor ominously tightened their grip on their spears. 
+
+"Joke number one!" Dhritarashtra announced, wheezing slightly. "Why does Guru Dronacharya always carry two quivers?! Because one is for arrows... and the other is exclusively for storing his premium somras!"
+
+Dhritarashtra slapped his thigh. He laughed alone for exactly two seconds before the captain of the guard roared, "LAUGH AND REJOICE!"
+
+"HAHAHAHA! GLORY! SO FUNNY! AMAZING PUN!" the crowd shrieked in absolute terror. 
+
+"Excellent!" Dhritarashtra beamed blindly. "Joke number two! What happens when Bhishma Pitamah and Prince Yudhishthira get trapped in a room together?! They both starve to death aggressively trying to let the other one walk out of the door first in the name of dharma!"
+
+"HAHAHAHA! MY SIDES ARE SPLITTING, O KING!" an elderly man near the front row screamed, weeping openly. 
+
+"Joke number three!" Dhritarashtra yelled over the forced laughter. "What is the absolute most dangerous, lethal weapon in my entire royal arsenal? It isn't a mace! It isn't a spear! It is my wife Gandhari's blindfold... because she never sees my mistakes!"
+
+Next to me, Vikarna actually put his head between his knees in sheer embarrassment. 
+
+"HAHAHAHA! HAHAHA!" the crowd continued their robotic, fear-induced hysterics. 
+
+"And finally! Joke number four!" Dhritarashtra pointed vaguely toward the VIP section where I was sitting. "Who is the brave warrior sitting in the stands wearing incredibly tight, unbreathable blue pants?! Ah, never mind! He couldn't fight anyway, his blood circulation cut off hours ago! Look at the peasant, he looks like a stuffed sausage!"
+
+The stadium erupted into the loudest fake laughter yet. 
+
+Meanwhile, across the royal pavilion, Queen Kunti was completely ignoring her brother-in-law’s terrible stand-up routine. She was leaning intensely over the railing, staring directly at the VIP stands. Or more specifically, at me. 
+
+She nudged Gandhari, the Queen mother, who was sitting regally beside her with her famous silken blindfold tied tightly across her eyes. 
+
+"Gandhari, sister," Kunti whispered, a note of deep, maternal panic in her voice. "I need you to tell me I am hallucinating because of the heat."
+
+"What is it, Kunti? I am blind. I cannot see what you are looking at," Gandhari replied patiently. 
+
+"There's a man sitting behind Arjuna," Kunti hissed. "He’s wearing... I don't even know how to describe it. It's a stiff, blue fabric that tightly hugs his legs, and thick white leather blocks on his feet. He has a strangely trimmed beard and his eyes are filled with anxiety." Kunti paused, a hand flying to her mouth in sudden horror. "Oh gods."
+
+"What is it?" Gandhari asked, alarmed. 
+
+"Did I accidentally use the boon again?!" Kunti whispered frantically. "You know, the mantra Sage Durvasa gave me to bear children from the gods? Look at him, Gandhari! He has the same deeply anxious, slightly terrified aura as... well, as Karna! What if I muttered the mantra while looking at a painting of a tailor?! Is he another son?!"
+
+"Kunti, keep your voice down," Gandhari hissed, adjusting her blindfold carefully. "You haven't used that mantra in decades. And more importantly, stay completely silent about this! If anyone finds out Karna is actually your son, it will ruin everything. Don't go claiming random men in tight blue pants as your offspring!"
+
+"I know, I know!" Kunti whispered, looking at me with maternal guilt. "But do I have to send this one floating down a river in a basket too? The river is terribly crowded these days!"
+
+Before Gandhari could calm her down, a horrible screeching noise echoed out of the magical acoustic system. 
+
+Guru Dronacharya had apparently woken up from his nap. 
+
+He staggered forward, aggressively bumping Dhritarashtra out of the way. He grabbed the railings, looking out over the crowd with deeply bloodshot, unfocused eyes. 
+
+"Citizensh of... Has-tin-a-pur," Dronacharya slurred, swaying dangerously close to the edge. "As we conclude this momentous occashun... I want to shay..." He reached into his robes, pulled out a crumbling palm leaf, and squinted at it furiously. "As we light these diyas... wait. As we light these diyas in our hearts... may the Goddess Lakshmi bring a massive ROI to your investments this quarter!"
+
+Silence. Pure, unadulterated silence. 
+
+"And remember," Dronacharya continued, completely oblivious to where he is and what occassion it is, "to only eat one laddoo from the common basket so everyone gets a turn. Happy Diwali to everyone! Let's get back to work by Monday!"
+
+Ashwatthama, looking like he wanted the earth to actively swallow him whole, sprinted onto the balcony. He grabbed his father by the shoulders and forcefully dragged him backward away from the ledge. 
+
+"THE TOURNAMENT IS CONCLUDED! GLORY TO HASTINAPUR!" Ashwatthama screamed in a blind panic, frantically waving for the guards to clear the stadium. 
+
+"Well," Vikarna sighed, standing up and stretching his arms. "That wasn't entirely a disaster. Only mostly. Come along, peasant. Time for the after-party. And honestly, I need a drink."
+
+***
+
+The after-party was not held in a grand, stuffy palace hall. It was held in the royal courtyards, under a massive open sky, illuminated by hundreds of floating oil lamps and roaring bonfires. The smell of roasted meats, rich spices, and copious amounts of fermented somras filled the night air. 
+
+If you stripped away the gold armor, the ancient architecture, and the literal presence of mythological demigods, it felt exactly like a rowdy corporate retreat where everyone had access to the open bar. 
+
+I stuck close to Vikarna, entirely because he was my only anchor in this terrifying reality. I grabbed a clay cup of what smelled wildly alcoholic and leaned against a stone pillar, watching the chaos unfold. 
+
+Surprisingly, the bitter, genocidal rivalry I had expected between the Pandavas and Kauravas hadn't fully materialized yet. Tonight, fueled by somras, they were merely behaving like an overwhelming fraternity of hyper-competitive cousins. 
+
+"Oye, Yudhishthira!" Duryodhana bellowed near the barbeque pit, holding a massive leg of roasted mutton in one hand. "I heard you almost challenged Vikarna to a duel over... what was it? His posture?!"
+
+The Kaurava brothers immediately burst into raucous laughter. 
+
+Yudhishthira flushed, clutching his goblet defensively. "My concerns were regarding the foundational dharma of combat, Duryodhana! Which is something you wouldn't understand, seeing as your entire strategy today was to swing your mace with your eyes closed and hope you hit Sahadeva!"
+
+"Ohhhh!" Arjuna and the Pandava brothers cheered, clinking their cups together. 
+
+"At least I actually fight," Duryodhana shot back, grinning wickedly. "I bet if we put a pair of dice in the middle of the arena, you'd fight harder to win a game of ludo than a real war."
+
+The laughter from the Kaurava side was so loud it disturbed a flock of birds roosting in the nearby palace eaves. It was a terrifyingly accurate roast, considering the horrific gambling match that history awaited. 
+
+Even King Dhritarashtra had been wheeled down to the party on an ornate throne cart. He was completely hammered on premium somras, sitting in the center of the yard, roasting both sides with equal prejudice. 
+
+"Duryodhana is right, Yudhishthira!" Dhritarashtra cackled. "And Duryodhana, you’re built like a brick outhouse but you have the strategic mind of a confused pigeon! Bhima, stop eating all the chicken! Arjuna, your hair is too pretty for a man! I am blind, but even I can sense the amount of hair oil you're using!"
+
+"Oye Dushasana!" Bhima yelled across the fire, holding a massive kebab. "Tainu pata hai tu jadon nachda hai, mere kutte vi darr ke luk jaande ne!" *(Do you know when you dance, even my dogs get scared and hide!)*
+
+"Arey Bhaiya!" Dushasana replied instantly in Bihari, twirling a goblet. "Aapka chehra dekh ke toh kutta kya, bhootwa bhi raasta badal leta hai!" *(Brother! Seeing your face, forget dogs, even ghosts change their path!)* 
+
+Vikarna, laughing loudly, high-fived Bhima's massive palm, then seamlessly turned around and high-fived Dushasana. 
+Dushasana scowled at his brother. "E ka Vikarna?! Whose side are you on anyway?!"
+
+"I'm on the side of quality entertainment," Vikarna smirked, taking a long sip of somras. He looked across the courtyard, spotting Dronacharya swaying near the bar. "Speaking of... Look at the great Guru Dronacharya. Half the battle is won just by watching him try to keep his balance! The man is so drunk, he's currently giving tactical archery advice to a potted plant!"
+
+Ashwatthama, overhearing from the buffet table, immediately stepped up, his forehead gem flashing angrily in the firelight. "At least my father earned his position through unparalleled martial prowess, Vikarna! The only prowess you've demonstrated today is surviving a battle simply because your opponent brought too much reading material!" 
+
+Everyone roared with laughter. It was a bizarrely wholesome, deeply dysfunctional family barbecue. 
+
+Well, almost everyone was laughing. 
+
+Sitting alone in the far corner of the courtyard, nursing a cup of unfermented goat's milk and scowling intensely, was Bhishma. The Grandfather of the Kuru dynasty looked like a man who was profoundly, fundamentally angry at the concept of joy. 
+
+Next to him, materializing out of literally thin air, stood a dark-skinned, heavily bearded sage with wild dreadlocks and an aura of intense creative frustration. Sage Vyasa. The actual author of this epic. 
+
+"Bhishma," Vyasa sighed, rubbing his temples. "This script is getting away from me."
+
+"It's a mockery, Vyasa," Bhishma growled, glaring at Duryodhana and Bhima, who were currently trying to see who could balance a spear on their chin the longest. "Look at them. In my day, we took vows of lifelong celibacy! We stood in freezing rivers for thirty years to prove a point! We didn't do... what do they call it?"
+
+"Keg stands," Vyasa provided bleakly. "Dushasana just taught them how to do a keg stand with the somras barrel."
+
+"It lacks gravitas!" Bhishma snapped. "Where is the tension? Where is the geopolitical maneuvering? If they keep this up, the great war of Kurukshetra is just going to be a giant roast battle where someone gets their feelings hurt in a WhatsApp group."
+
+"I know, I know," Vyasa muttered, pulling a stylus from his beard. "I need to introduce some dramatic tension. Maybe a misunderstanding over a property dispute. Or an insulting laugh at a water pool. Let me work on the drafts."
+
+Ignoring the looming authorial dread of Sage Vyasa, I quietly slipped away from my pillar. The smell of the barbeque was making my stomach rumble loudly, reminding me that the last thing I had eaten was a terrible office canteen samosa back in 2026. 
+
+I skirted around a group of laughing, heavily armed nobles, making my way toward the long wooden tables laden with food. I reached out for a beautifully spiced mutton kebab. 
+
+A hand shot out and gripped my wrist like a vice. 
+
+I gasped, looking up. 
+
+It was Sahadeva. 
+
+He had changed out of his fighting gear into simple white silks, though a massive, ugly purple bruise blossomed across his jawline where Duryodhana’s mace had clipped him. His intense, tired eyes bored directly into my soul. 
+
+He didn't yell. In fact, he looked around to ensure nobody was watching, then pulled me behind a large decorative tapestry hanging near the kitchen entrance. The music and laughter of the after-party faded into a muffled thrum. 
+
+"Let me go!" I hissed, trying to wrench my arm free. Given he was a highly trained ancient warrior, my IT-guy muscles achieved absolutely nothing. 
+
+"Rahul Sharma," Sahadeva said softly. 
+
+My heart completely stopped. My blood ran colder than liquid nitrogen. 
+
+He didn't just know I was out of place. He knew my name. 
+
+"Employee ID 4892. Mayur Vihar, Phase Two," Sahadeva continued, his voice calm, flat, and terrifyingly precise. "Your Netflix subscription auto-renews tomorrow, and you currently have zero idea how to fix a bug in the legacy payment gateway."
+
+I actually stopped breathing. "How... how do you know that? Am I dead? Is this a highly elaborate purgatory designed for average software engineers?"
+
+Sahadeva released my wrist. He leaned back against the stone wall, pressing a hand against his bruised ribs, and sighed with the exhaustion of a man who carried the entire universe's secrets in his head. 
+
+"I am a prophet, Rahul. I see the future," Sahadeva said, looking at me as if I were a particularly slow child. "But 'seeing' the future isn't some mystical, foggy dream. It is mathematics. It is physics. It is the raw calculation of cause and effect on a quantum level."
+
+I stared at him blankly. "Did a BCE warrior just say 'quantum level'?"
+
+"I have spent my entire life looking forward through the timeline," Sahadeva explained, his tone suddenly shifting from mythological prince to an exasperated theoretical physicist. "I map the chronal waves. I am aware of the geopolitical shifts, the rise of technology, the invention of the microchip, and unfortunately, the overwhelming popularity of low-effort Instagram reels."
+
+"You know about Instagram reels?"
+
+"I see everything," Sahadeva said darkly. "It's a curse. But more importantly, I saw *you*."
+
+"Me?"
+
+"Yesterday, I was deep in chronal mediation, tracking the eventual structural collapse of the Indus River system. Suddenly, I sensed a massive, localized rupture in the space-time fabric." Sahadeva leaned forward, his eyes narrowing. "A localized chronal displacement wave. Originating from a rudimentary, horribly wired, highly unstable mechanical vehicle covered in matte black spray paint."
+
+"Uncle Jaggi’s Maruti 800," I whispered in horror. 
+
+"It tore a hole straight through the timeline and violently intersected with my meditation anchor. You essentially drove a multi-ton paradox straight into my brain, Rahul."
+
+"I am so, so sorry," I stammered, raising my hands apologetically. "My bike wouldn't start. I had a date in Gurgaon! I didn't mean to break the universe! How do I go back?! How do I un-break it?!"
+
+Sahadeva’s expression darkened. The humor and party atmosphere completely vanished, replaced by a suffocating, lethal seriousness. 
+
+"You can't."
+
+The words hung in the air like an executioner's blade. 
+
+"What do you mean, I can't?" My voice cracked, pitching an octave higher. "Of course I can! The car is parked right outside the stadium! In a haystack! I just need to turn it on, hit the Bluetooth connection, and accelerate!"
+
+Sahadeva shook his head slowly. "The Maruti is a dead reactor. It expended its entire temporal charge piercing the timeline. More importantly, your entrance was not seamless. You are stuck here, Rahul."
+
+"Stuck? For how long?" I whimpered. 
+
+"Until I can recalibrate the chronal vectors using some highly advanced Vedic mathematics, which will take time," Sahadeva whispered, rubbing his temples furiously. "But don't panic. The good news is, I know the solution."
+
+"You do?!" I gasped, overwhelming relief flooding my system. 
+
+"Yes. But to keep the timeline from realizing you're a modern anomaly, you have to stay close to me. Extremely close. Like, practically attached to me."
+
+Overwhelmed with sudden, life-saving gratitude toward this ancient psychic prince, I lunged forward and desperately threw my arms around him in a tight, awkward hug. 
+
+Sahadeva froze instantly. He gently but firmly peeled my arms off his silks, looking at me with pure, unadulterated disgust. 
+
+"Close as in a 40-kilometer radius, you absolute idiot," Sahadeva hissed. "Not 4 millimeters. Do that again and I will let Bhima use you as a throwing weapon."
+
+Before I could even process the absolute horror of his words, a loud, obnoxious voice interrupted us. 
+
+"Oi, peasant!" 
+
+Vikarna poked his head around the tapestry, holding a massive jug of somras and grinning widely. "What are you doing hiding behind the curtain with the psychic cousin? Come out here! Duryodhana wants to arm-wrestle a horse, and I need someone to hold my bets!"
+
+Sahadeva looked at Vikarna, then back at me. He gave a tiny, nearly imperceptible nod. 
+
+"I'm coming," I croaked out, my throat dry as sandpaper. 
+
+I stepped out from behind the curtain, leaving the terrifying reality of the cosmos behind me, and walked back into the after-party of the millennium. The ancient world had me trapped, and the only man keeping me alive was a bruised psychic who hated Instagram reels. 
+
+My date with Neha was definitely, permanently ruined.
+

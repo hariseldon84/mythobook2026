@@ -55,3 +55,43 @@ And then end the chapter with Rahul confronted by Sahadeva ....And tells him eve
 
 
 No word limit but min 5000 is needed. we can split into two if needed but details need to come out exclusively w/o any summary and add a lot and lot of fun and jokes but try to get into serious tone when Sahadeva and Rahul are there . a bit technical into travel into future which Sahadeva had cracked out
+
+
+Prompt for new chapter 3
+
+
+Kindly go through the repository and the folder book and all files. its a comedy book and you have the plot. Start thinkign like top comedians, standup comedians and roasters 
+ and we have to tighten this book with both realism, fiction, fantasy, suspense and make a balanced funny read. Two chapters are done. and we need to start chapter3.md. However 
+ we are not necessarily following the final.md structure. That is just a sort of like an anchor document for us to think what kind of chapters there can be beyond chapter 2 and 
+ we shud build one by one an interesting chapter depending on the last chapter's puns and jokes and other things. Now lets BE INTERACTIVE and brainstorm on chapter 3 Which is   
+now that Sahadeva and Rahul will have an interesting conversation about future and everything. Lets be interactive. Ask as many questions as possible. Search online about the   
+real history of Mahabharata as well!!! 
+
+
+Chapter 4 Prompt :
+
+
+Lets write Chapter 4 in a minimum of 6000 words
+
+Use the plot below :
+
+- Days pass by. Rahul adjusts in Hastinapur quite well and Sahdeva tells everyone that he is his new assistant and Product Manager for his relay network. Everyone likes him : both Pandavas and Kauravas. Rahul also becomes great friends with Vikarna who introduces to everyone in Kauravas. Upon request by Yudhishthira, Rahul has to adapt to the new clothing attire. Bhima starts loving Rahul a lot as Rahul teaches him amazing recipes including Pizza and Carbonated Drink which he calls as Bhim Cola and everyone in kingdom loves it. Dushasana learns Bhangra and Rock Music from Rahul and happier. There are pizza parties and nightouts that are happening. Vyasa is not happy. 
+
+Build the above in this chapter as narrative by Rahul but expand it very much and also add dialogues to each events like Bhima talking in Punjabi with Rahul and calling him Raool . Dushasana's bihari dialogue with him.
+
+Dhritrashtra assigns Rahul a Tech Advisory role in his cabinet and cracks many jokes with him. Rahul adjusts.
+
+Kunti is still confused about Rahul and occassionaly call him Beta and gets emotional and teary eyed sometimes. 
+
+Show dialogues on all but make the narrative go around.
+
+- Only people suspicious of Rahul are Vyasa and Bheeshma and Rahul snoops in to hear the conversation and make it funny. 
+
+- Now lets take to few months later. And Shakuni has an important meeting with Rahul lined up and he starts presenting his plans for MBHT Agency with him and also how his current YouTube Channel "Mama Ke Nuskhey" about everythying related to finance , politics, etc. can be used to promote the business and he wants to sign a 10,000 yr deal with him and then Rahul realizes Shakuni knows that he is from tthe future as he overheard Sahadeva and Rahul once but he keeps to himself. 
+
+Chapter ends with Rahul being surprised and shocked by Shakuni and now urgently meets up Sahadeva for the same. 
+
+
+Build this as chapter 4.md 
+
+Make it very very funny plz....

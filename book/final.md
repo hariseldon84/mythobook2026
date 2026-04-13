@@ -40,16 +40,16 @@ Show his entry in Grand Arena...Everyone is mocking Rahul for his clothes. The g
 
 
 
-### Chapter 2: The Prophet and the IT Guy
+### Chapter 3: The Prophet and the IT Guy
 Rahul becomes Sahadeva’s assistant. Sahadeva reveals he knows everything—from the results of the Kurukshetra war to the ending of *Avengers: Endgame*. Sahadeva is thrilled to finally have someone to talk to about pop culture. 
 
-### Chapter 3: The Start-Up Pitch
+### Chapter 4: The Start-Up Pitch
 Shakuni corners Rahul while they are smoking up behind the stables. Shakuni pitches him a startup idea: using Rahul’s future knowledge to launch a stock-market-tips empire and a political PR agency. He names it "MBHT (Mera Bachcha Hai Tu) Media".
 
-### Chapter 4: The Ganesha Media Ltd. Meeting
+### Chapter 5: The Ganesha Media Ltd. Meeting
 Desperate to stop the brewing tension, Rahul discovers Vyasa is engineering the conflict. Rahul manages to secure a 2-minute meeting with Lord Ganesha at a random chariot-inauguration ceremony. Ganesha's office is filled with futuristic tech and holographic multiverses. Ganesha imparts deep, humorous wisdom to Rahul about letting timelines play out, but agrees to temporarily block Vyasa’s Wi-Fi.
 
-### Chapter 5: The Swayamvar PR Disaster
+### Chapter 6: The Swayamvar PR Disaster
 The royal family attends Draupadi's Swayamvar. The whole "married to five men" thing is revealed to be a complete misunderstanding/PR stunt masterminded by Vyasa to generate hype. Draupadi is actually a brilliant political counsel who only marries Arjuna but becomes the strategic advisor for all the brothers.
 
 ### Chapter 6: The Dice Game - Part 1 (Truth or Dare)
