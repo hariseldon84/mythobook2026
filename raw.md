@@ -27,3 +27,31 @@ But we need to make circumstances in the book that leads to this war Mahabharata
 This is just a basic idea. Think about a good name for this book something like Mahabharata Inc or even funnier. Save this concept in a file called final.md.
 
 IN final.d capture the entire plot introduction, brainstorm some scenes and chapters, add atleast 30 funny situations and dialogues and create a scene by scene plot and narrative of the book here...a
+
+
+
+
+Prompt two :
+
+
+Great now lets build CHapter 2 which is : Next, Arjuna fights Shakuni. Shakuni claims every arrow Arjuna shoots is a foul based on obscure corporate HR policies. Shakuni shoots one arrow blindly 5 meters away and declares himself the winner. Arjuna, irritated, shoots an arrow into the sky that perfectly pierces the eye of a bird miles away. Karna immediately rides in, shoots an arrow *through* Arjuna's arrow inside the bird's eye, strikes a pose, and waits for applause. Shakuni ignores them both and takes the trophy.
+
+However we need to have many funny takes into this.
+
+- Make this chapter 5000 words too...
+- Next battle is Bhima and Dushasana. Show that Dushasana gives an intense competition to Bhima as he is a nritya champion. Vikarna tells all this to Rahul btw in a funny way. Show dialogue fight between Bhima in Punjabi and Dushasana in Bihari. Apparently Dushasana is picking Bihari slang and they both have one funny conversation during fight abusing each other and trying to fight but in the end the match ends up in draw as Bhima is unable to hit Dushasana anymore and they both get tired eventually. Arjuna complaints that this is why i asked him not to eat Parathas and the Prince Vikarna agrees with Arjuna but tells him why worry its jst a mnatch , let big guy have some fun.
+- Next battle is that of Dharmaraja Yudhishthira with Vikarna and the fight doesnt even start as Dharmaraja in his righteous manners argues against  many rules in the battle including the fashion of audience and Rahul in particular and then Vikarna tries to defend Rahul. They have some conversation. Drona gets bored as he is drunk and announcces its a draw but everyone is disappointed.
+- Have next battle of Arjuna and Shakuni as shown above and Karna interferes as per above story.
+- Dhritrashtra ends up the competition with his funny jokes (tell 4 to 5 which are not funny)_ and everyone is forced to laugh..
+- Kunti tries to look at Rahul and discusses with Gandhari and gets confused if he is another son of hers via some boon by some future funky god. 
+- then when everyone is going and leaving the arena as its over, Dronacharya gets back to his sense and shouts and gives the speech which he had prepared for Diwali. Ashwathamma corrects it and event gets concluded
+
+
+Show all this and then take the story that everyone now goes out for after party where they all meet each other.
+Show everyone meeting each other.Pandavas and Kauravas they crack jokes at each other and tease a lot --talk funny jopkes and each one trying to roast each other. Dhritrashtra is enjoying it and is roasting both Pandavas and Kauravas.
+Bhishma is annoyed...Vyasa talks to Bhishma and plots that they should do something.
+
+And then end the chapter with Rahul confronted by Sahadeva ....And tells him everything how he knows him and then tell that chapter ends with Sahadeva telling Rahul that he should definitely stay with him now...
+
+
+No word limit but min 5000 is needed. we can split into two if needed but details need to come out exclusively w/o any summary and add a lot and lot of fun and jokes but try to get into serious tone when Sahadeva and Rahul are there . a bit technical into travel into future which Sahadeva had cracked out
