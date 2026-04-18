@@ -252,11 +252,11 @@ I shut the door. The immediate drop in acoustics made my stomach tie itself into
 
 I lowered myself onto a cushion across from him. He finally looked up. His eyes were sharp, cold, fiercely calculating, and completely lacking the frantic, frat-boy innocence that shaded the younger princes. He smiled, and it was a thin, deeply unpleasant expression that didn't reach his eyes. 
 
-"I have a highly lucrative business proposition for you," Shakuni said smoothly, gathering the dice into his bony hands. 
+"I have a highly lucrative business proposition for you, Rahul , mere bachche! " Shakuni said smoothly, gathering the dice into his bony hands. *(mere bachche means my son.)*
 
 "I'm honored, Uncle," I started, trying for my best professional deflection voice. "But I only handle product strategy for Sahadeva’s relay network. Any commercial ventures really need to go through the royal treasury—"
 
-"Oh, save the tedious corporate jargon for the blind king," Shakuni interrupted sharply, waving a dismissive hand as if swatting an annoying fly. "I am a man of vision, Rahul. I see the underlying trends. I see the massive gaps in the current market. I understand audience retention. Look at my YouTube channel, for instance. *Mama Ke Nuskhey*. Fifty thousand subscribers. Growing week over week."
+"Oh beta, save the tedious corporate jargon for the blind king," Shakuni interrupted sharply, waving a dismissive hand as if swatting an annoying fly. "I am a man of vision, mere bachche. I see the underlying trends. I see the massive gaps in the current market. I understand audience retention. Look at my YouTube channel, for instance. *Mama Ke Nuskhey*. Fifty thousand subscribers. Growing week over week."
 
 I blinked, momentarily thrown off by hearing the ancient master of deceit drop analytics terminology. "I... I have seen it. Your most recent video on 'Top 5 Psychological Ways to Gaslight Your Nephews into Giving Up Their Kingdom' has excellent audience retention."
 
@@ -264,7 +264,7 @@ I blinked, momentarily thrown off by hearing the ancient master of deceit drop a
 
 The temperature in the room seemed to drop ten degrees. My blood ran cold. "I don't know what you're talking about."
 
-Shakuni chuckled, a dry, rattling sound that sounded exactly like shaking bones in a cup. "Please, Rahul. Let us not insult each other's intelligence. I am the grand master of secrets in this castle. A few months ago, during the archery tournament's famously rowdy after-party... I was taking a quiet, contemplative stroll near the kitchens."
+Shakuni chuckled, a dry, rattling sound that sounded exactly like shaking bones in a cup. "Please, Rahul beta. Let us not insult each other's intelligence. I am the grand master of secrets in this castle. A few months ago, during the archery tournament's famously rowdy after-party... I was taking a quiet, contemplative stroll near the kitchens."
 
 I stopped breathing. 
 
@@ -272,7 +272,7 @@ I stopped breathing.
 
 The walls of the room slowly started to spin. He knew. Shakuni knew. 
 
-"I admit, I didn't understand all the specific terminology," Shakuni continued, his voice dropping to a dangerous, conspiratorial whisper. His eyes locked onto mine like a hawk spotting a field mouse. "But I am excellent at context clues. I understood enough. Something about a 'mechanical vehicle' buried in a haystack. Something about a year called '2026'. A localized timeline rupture. You, Rahul Sharma... are not from East Delhi. At least, not *current* East Delhi. You know the future. You know *everything* that happens to us."
+"I admit, I didn't understand all the specific terminology, beta" Shakuni continued, his voice dropping to a dangerous, conspiratorial whisper. His eyes locked onto mine like a hawk spotting a field mouse. "But I am excellent at context clues. I understood enough. Something about a 'mechanical vehicle' buried in a haystack. Something about a year called '2026'. A localized timeline rupture. You, Rahul beta... are not from East Delhi. At least, not *current* East Delhi. You know the future. You know *everything* that happens to us."
 
 I opened my mouth to deny it. I tried to formulate a lie about being a traveling scholar. But my vocal cords had completely paralyzed themselves. I just stared at him, my eyes wide with sheer, unadulterated panic. 
 
