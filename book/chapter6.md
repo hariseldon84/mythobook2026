@@ -325,7 +325,6 @@ Yudhishthira kept reading his endless list of tactical audit failures for anothe
 "If he doesn't stop talking about 'best practices'," Suyodhana ground out, his face pale, "I am going to intentionally crash my own chariot."
 
 
-
 The journey back to Hastinapur was significantly less majestic than the journey out. There were no banners waving, no songs of anticipated victory, and the princes were largely exhausted from essentially running away from their first major military deployment. 
 
 When our chariots finally clattered into the grand courtyard of Hastinapur, we were not greeted by a hero's welcome. We were greeted by Sahadeva and Vikarna. 
@@ -368,7 +367,7 @@ Terrified of being arrested immediately after escaping an arrest warrant, the en
 
 "Oh, the wordplay is staggering!" I shouted, clapping my hands. 
 
-"I love it!" Dhritarashtra beamed blindly. "You see, Bhishma?! They love it! The youth respect a good pun!" 
+"I love it!" Dhritarashtra beamed blindly. "You see, Pitamaha?! They love it! The youth respect a good pun!" 
 
 Speaking of Bhishma, the terrifying patriarch was standing near the training grounds, deep in conversation with Guru Dronacharya. 
 
@@ -438,7 +437,7 @@ Before I had encountered Vidura in the hallway—the man claiming to be the deep
 
 But as Vidura had grabbed me in that corridor, revealing his complete inability to remember his own master escape plan for the Pandavas, that hope evaporated. 
 
-Let me expand on that terrifying conversation with Vidura. Standard mythology presents Vidura as a bastion of intellect and foresight. In reality, he was an incredibly well-meaning man who was entirely overwhelmed by the sheer volume of chaotic idiocy surrounding him. 
+Let me expand on that terrifying conversation with Vidura. Standard mythology presents Vidura as a bastion of intellect and foresight. In reality, he was an incredibly well-meaning man who was entirely overwhelmed by the sheer volume of information and chaotic idiocy surrounding him that rendered his 200 GB memory space in brain incapable of storing new facts or sometimes deleting extremely important old facts.
 
 "Okay, wait," Vidura had said, pacing in the small alcove. "I remember the second part of the plan. It's brilliant. We encode a secret message onto a series of exceptionally trained carrier pigeons. Only Sahadeva will know how to decode the cypher. It involves Vedic math and a very specific sequence of seed consumption."
 
@@ -452,9 +451,9 @@ Let me expand on that terrifying conversation with Vidura. Standard mythology pr
 
 "So what do we do about the flammable summer house?!" I had pressed frantically. "They leave on Tuesday! Vyasa is going to turn them into fondue!"
 
-"I have a backup spy!" Vidura announced brightly. "An expert miner! I will send him ahead to dig a massive, undetectable tunnel under the floorboards of the resort! The Pandavas will slip down the tunnel the moment the fire starts, totally bypassing Kaurava Consulting Group's sabotage!"
+"I have a backup spy!" Vidura announced brightly. "An expert miner! I will send him ahead to dig a massive, undetectable tunnel under the floorboards of the resort! The Pandavas will slip down the tunnel the moment the fire starts, totally bypassing Vyasa's sabotage!"
 
-"Okay! Great! Do it!"
+"Okay! Great! Do it! We take Pandavas out and make Vyasa and Bheeshma believe that they are dead. We take couple of years to figure out how to neutralize the upcoming threat."
 
 "Except..." Vidura hesitated, looking deeply ashamed. 
 
@@ -470,7 +469,7 @@ I stared at the Chief Minister of Hastinapur. I reached out and gently patted hi
 
 And that was why I had desperately sprinted to Sahadeva’s room, praying that his psychic foresight bypassed the absolute catastrophe of the royal spy network. Fortunately, Sahadeva's foresight was completely operational. But to my absolute shock, instead of viewing the impending arson as an assassination attempt, Sahadeva viewed it as an aggressively mandated, fully funded vacation. 
 
-"Wait," I said, leaning against Sahadeva's door frame, absolutely flabbergasted as he finished packing his ancient sunglasses. "Let me get this straight. You *know* the house is made of lacquer and ghee. You *know* Vyasa and Bhishma are going to light a match and blame the Kauravas. You *know* Vidura's encrypted pigeons are currently inside Bhima's stomach and the escape tunnel is under a cow farm. And you're STILL GOING?"
+"Wait," I said, leaning against Sahadeva's door frame, absolutely flabbergasted as he finished packing his ancient sunglasses. "Let me get this straight. You *know* the house is made of lacquer and ghee. You *know* Vyasa and Bhishma are going to light a match and blame the Kauravas and save you majestically. You *know* Vidura's encrypted pigeons are currently inside Bhima's stomach and the escape tunnel is under a cow farm. And you're STILL GOING?"
 
 "Rahul," Sahadeva said smoothly, pulling a large, fluffy pillow out of his closet and shoving it into his duffel bag. "We have spent the last three weeks dealing with Yudhishthira reading 'third-party alignment checks' over breakfast. We have dealt with Draupadi aggressively establishing complex corporate boundaries from hundreds of miles away. And Bhima is trying to force us to invest in his Tandoori-Momo franchise."
 
@@ -479,7 +478,6 @@ He paused, zipping the bag. He looked at me with an expression of pure, unadulte
 "If Vyasa wants to burn a house down so I get to spend six months hiding underground in peace, quiet, and glorious isolation, perfectly far away from any corporate synergies... I will hand Vyasa the match myself."
 
 He smiled warmly, tapping my shoulder. "Pack some comfortable shoes, Rahul. We are going on a highly explosive holiday."
-
 
 If only Yudhishthira involved highly flammable resorts, the House of Wax was going to test his compliance to standard fire safety codes. 
 
@@ -530,7 +528,7 @@ I walked over, carrying my extremely small cloth bag containing my extra t-shirt
 
 "Aah," Bhima rubbed his massive belly happily. "Phool mauj karenge! Tandoori holidays!" *(We'll have full fun! Tandoori holidays!)*
 
-If Bhima only knew that the holiday home itself was basically a giant tandoori oven made of lacquer and ghee, his excitement would probably take a much darker culinary turn. But I had promised Sahadeva I wouldn't ruin his mandated peace and quiet by inducing an early panic attack in the others. 
+If Bhima only knew that the holiday home itself was basically a giant tandoor oven made of lacquer and ghee, his excitement would probably take a much darker culinary turn. But I had promised Sahadeva I wouldn't ruin his mandated peace and quiet by inducing an early panic attack in the others. 
 
 Across the courtyard, the Kauravas were also packing. 
 
