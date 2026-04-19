@@ -395,7 +395,7 @@ His voice lost the playful edge. The Supreme Being was speaking now.
 
 "I understand, My Lord," I whispered, the crushing reality of the impending epic war settling heavily on my shoulders. 
 
-"Good. Now, on a much more immediate, highly stressful note," Krishna said, his mischievous smile returning instantly. "When you return to your squalid little house in Nayada tonight with your new bride... do **not** let Yudhishthira perform the formal introduction to Kunti."
+"Good. Now, on a much more immediate, highly stressful note," Krishna said, his mischievous smile returning instantly. "When you return to your squalid little house in Nayada tonight with Arjuna's new bride... do **not** let Yudhishthira perform the formal introduction to Kunti."
 
 "Why not?" 
 
@@ -403,7 +403,7 @@ His voice lost the playful edge. The Supreme Being was speaking now.
 
 My jaw dropped in sheer horror. The legendary polyandry origin story!
 
-"Exactly," Krishna nodded, seeing my panic. "It was the most socially devastating communication breakdown in literary history. If Yudhishthira says that line, Vyasa will immediately force the narrative, and Draupadi will be legally bound to marry all five of them. It will complicate the startup equity distribution terribly. Stop him."
+"Exactly," Krishna nodded, seeing my panic. "It was the most socially devastating communication breakdown in literary history. If Yudhishthira says that line, Vyasa will immediately force the narrative, and Draupadi will be legally bound to marry all five of them in his narrative. It will complicate the startup equity distribution terribly. Stop him."
 
 "I will put duct tape over his mouth," I promised fiercely. 
 
@@ -417,9 +417,9 @@ I immediately ran back to our table and forcefully initiated a highly aggressive
 
 The journey back to Nayada that night was profoundly weird. Arjuna was sitting next to Draupadi, explaining the optimal tension of organic bowstrings, while Draupadi actively critiqued his lack of long-term sustainable supply chains. They were horrifyingly perfect for each other. 
 
-The moment our chariot pulled into the dusty compound of Sector 15, I aggressively blocked the front door before anyone could enter. 
+The moment our chariot pulled into the dusty compound of Sector 15, I aggressively blocked the front door before anyone could enter and asked all of them to wait while I converse with Sahadeva. 
 
-"Listen to me!" I yelled quietly to the Pandavas. "Under no circumstances is Yudhishthira allowed to speak to your mother right now! Nobody says *'look what we brought'*! Do you understand?!"
+"Listen to me!" I spoke to the Pandavas. "Under no circumstances is Yudhishthira allowed to speak to your mother right now! Nobody says *'look what we brought'*! Do you understand?!"
 
 Sahadeva casually stepped off the chariot, removing his fake blonde wig. 
 
@@ -429,11 +429,19 @@ Sahadeva casually stepped off the chariot, removing his fake blonde wig.
 
 "The Lord has a highly developed sense of dramatic irony," Sahadeva smiled slightly. "Do you honestly think we are that stupid? Do you think Draupadi—the most fiercely independent, highly educated CEO of Panchaal—would ever agree to a five-way matrimonial split just because my mother mumbled something while making parathas?"
 
-I paused, looking at Draupadi, who was currently yelling at Bhima for failing to properly log the chariot mileage. 
+I paused, looking at Draupadi, who was currently yelling at Bhima for failing to properly log the chariot mileage.
 
 "That was just Vyasa's folklore," Sahadeva reassured me. "A scandalous narrative hook designed to boost palm-leaf sales in the southern sectors. Draupadi is marrying Arjuna. The rest of us are simply her subordinate executive board members."
 
-I let out a massive, shuddering breath, the tension finally leaving my body. Sahadeva was right. The mythological lore was heavily exaggerated for ratings. 
+Before I could reply, Arjuna casually pulled off his blonde wig and wiped the turmeric dye off his jaw, turning to Draupadi. 
+
+"By the way, CEO Draupadi," Arjuna said smoothly. "Full disclosure for the corporate merger. We are not from Americanapur. We are the 'dead' princes of Hastinapur. I am Prince Arjuna. These are my brothers, the Pandavas."
+
+Draupadi blinked, staring at the legendary warrior standing in front of her. A massive wave of elation washed over her, but she instantly masked it with a cool, corporate smile. 
+
+"Oh, I already knew that," Draupadi lied effortlessly, waving a dismissive hand. She was secretly thrilled that she had just married the greatest archer in the continent, actively suppressing the tiny, lingering disappointment that she wasn't going to get to settle in a penthouse in Americanapur for an international expansion. "Your kinetic execution practically screamed Kuru Dynasty."
+
+I let out a massive, shuddering breath, the tension finally leaving my body. We had bypassed the folklore trap entirely, and the CEO was fully onboarded. 
 
 "However," Sahadeva continued quietly, not looking back toward the dark forest surrounding our compound, "you should probably be aware that we are currently being surveilled."
 
