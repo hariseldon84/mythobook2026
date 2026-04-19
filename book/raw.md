@@ -315,3 +315,116 @@ Kauravas caravan goes to Indraprastha and on the way Rahala or me have an awkwar
 
 Then we all enter the Indraprastha and first meet the King Takshaka as our duty. Rahul feels uncomfortable as he finds Takshaka suspicious but Suyodhana keeps him occupied in his discussion related to his campaign and Takshaka's support in elections next year. Shakuni and Vikarna support me and introduce me as Rahala and Takshaka also acknowledges me with suspicion. 
 Then we have a lunch at The Royal Cafe where Bhima serves all of us nice coffee and food. Sahadev is there and recognizes me but silences me not to be overly joyous. They all take us to the new house where the house warming Puja is happening. I realize this is the exact place where Suyodhana falls under a mirage of water and Draupadi makes fun of it. So Rahul, or I,  keep close to Suyodhana brother and makes sure he doesnt falls down anywhere. To my surprise, we find that accidently BHima falls down in a pond of water and when everyone including Kauravas and Pandavas make fun of him, he drags everyone one by one in the pond of swimming pool and they all have a pool party before they could go inside the inaugral Puja and housewarming. Yudhishthira is irritated but everyone tries to make him easy. Rahul is shocked at the entire event. Shakuni also enjoys in pool. Then they all change and get into the main hall. I find out Yudhishthira is doing something called Raajsooya Yagya for Raajsooyi Cafe or Royal Cafe's success. We show entry of King Shishupala of a kingdom Chedi who is massively abusive and BHima and him have a conversation where he keeps teasing Bhima but Yudhishithira controls Bhima not to say anything to him. They all call him Chedi instead of Shishupala. Bhima even calls him Chedi Singh and I recall the dialogue of Dabanng of Salman Khan.  Suyodhana also finds Chedi irritating as he even trolls Suyodhana as well. And now we show another majestic entry of Lord Krishna and Lord Balarama. We show same spiritual vibe and Rahul getting emotional and this time also Lord Krishna looks at Rahul and smiles. Rahul silently bows to him and Lord Krishna gave him an admiring look. Rahul knows in this Chedi dies by Lord Krishna but reality is different. Chedi starts saying things about Lord Krishna and how he deceived him and the story. Lord Krishna warns him and tells that he has 100 execuses only. me, Vikarna and Sahadeve make Chedi drink something extremely alcoholic and he passes out at 50th only half drunk half asleep. Lord Krishna smiles at us for saving someone but tell Vikarna to instead imprison him for many code violations which they do. However Shakuni immediately tells that Chedi is a very important ally to Takshaka and this will annoy him but they anyways arrest him. Rajasooya Yagya goes fine. Lord Krishna blesses everyone. However Vyasa is disturbed during the Yagya and is unable to fuind out why the cousins are not fighting despite Rahul not being there. So he accidently creates a rumor that Draupadi was making fun of Suyodhana as he fell into the pond. He does that by askin everyone to play Chinese Whispers game as a bonding ritual in which he spreadds different rumor , one of the chains in chinese whisper is Purochana who says that Draupadi made fun of Sushasana but he says that to Rahala thinking that as Kaurava he will pass the same message but Rahala changes the message to something funny and Suyodhana laughs instead. vyasa is irritated and they all leave to their homes. However the arrest of Chedi has created tension as immediately a notice is sent to the house of Pandavas before Kauravas could take the prisoner Chedi. The message is from Takshaka that if they take him as a prisoner , it would be a war against the nation. Rahul contemplates what to do. We end this chapter in this confusion.
+
+Check chapter12.md
+
+I have removed the earlier plot of Chausar game as that would come in Chapter 13 as that is the second last chapter and Chapter 14 will have the discussion of Rahul with Lord Krishna.
+
+Now in Chapter 12.md , we need to add some more things. 
+
+- After the tragedy of rumor , everyone sits down together in the great dining hall and Yudhishthira proposes an expansion plan of his cafe to all the brothers and seeks their support to spread the word around. Suyodhana and Shakuni do a good bargain while Bhishma and Vidur try to convince them to let Pandavas expand as its their right. Show funny pun and Rahul realizing no matter whatever happens, when it comes to money everyone has their own stand. The argument ends with all sides not fighting but arguing over the expansion rights. Kauravas demanding some equity as they feel entitled not only as brothers but also because Pandavas have used the Kuru dynasty brand image to get more returns on their brand. They finally agree for a 5% equity in the overall franchise for Kauravas. Suyodhana seems pleased. Vikarna doesnt care.
+
+- Show the scene when Mata Kunti recognizes Rahal or Rahul and shows her afection in secret way. Rahal keeps telling her aunty as he is a Kaurava now. 
+
+- Show the scene when Draupadi also meet Rahala and gets suspicious but only BHima and Sahadeva knew and they deflect the situation with funny pun.
+
+- Show that when they are leaving the Indraprastha to hastinapur , Rahul feels heavy as he was also part of the royal cafe but nonetheless venture into seeing what would happen in the story next. 
+
+
+Make it funny and comic. This chapter can go beyond 600 lines also or even as high as 7000 words
+
+
+## Acknoeldgements
+Now lets write the Acknowledgements of the book.
+
+
+This is my rough draft.
+
+
+"Since childhood, my favorite epic has been Mahabharata. I have watched all the versions of the TV serials as well as even enacted with my family on some of the characters. My wife Himani, my son Medhansh and my daughter Prisha are avid fans of all the characters in the epic saga. However I always used to wonder why can't two sets of brothers or cousins from the same family stay happily ever after and have an ideal cousin chill vibe. This is my attempt to add humor to the biggest epic of our age. However I have no intention to hurt anyone's sentiment or manipulate a narrative. I respect the Mahabharata's original story as it is and I respect all the characters and rever the God as they are. I have utter dedication and devotion towards Lord Krishna and I always feel he is nearby whenever I am undertaking any new initiative or if I am in trouble. I am a deeply religious and spiritual man and even have a daily routine of my Puja and prayer towards my God. And by no means can I ever think or even say anythign that will disrespect my devotion or the devotion masses have over our deemed Gods. I sometimes beleive even Lord Krishna would want to hear my funny jokes and stories about Mahabharata and might read this book in Baikuntha sharing a laughter with Goddess Lakshmi . 
+
+I have come through a very tragic incident in my life and I absolutely beleive that I was saved by no one else but a divine intervention. For it was my faith towards my Lord Shiva which gave me a renewed purpose. For it was my respect and prayers towards Lord Ganesha that I get blessings from him whenever I start anything new. For it is my blind reliance on Lord Hanuman that I feel safe in this world. For it is my compelte devotion towards Lord Vishnu that I feel strong and blessed everyday. By no means I can ever write anything that will even remotely put a small mark on ther respect as well.
+
+That been said this is an entire fiction work and nowhere related to anythin gin history or mythology or past or present. I apologize to anyone who feels that he/she gets hurt by what I said. 
+
+I suggest not to overthink or rather think at all. while reading it and just enjoy the roller coaster ride that I have personally enjoyed as I wrote this completely erroneous , incorrect messed up version of Mahabharata. 
+Please watch the real story to get the real facts right and read this if you just wnt to lighten up your mood.
+
+I thank vehemently my daughter Prisha Arora and my son Medhansh for patiently listening to all my stories and versions of this book and giivng me great suggestions to improve. I thank my wife Himani for tolerating my not so funny jokes and supporting me in writing this book. 
+
+I thank my parents for their unconditional love and support and making me what I am today.
+
+I thank my brother Parag for enthusing me with motivation, hope and being my failsafe in life.
+
+And lastly all my close friends for being my cheerleaders througout. You know who you are as I share this gratitude. personally with you everyday"
+
+
+
+## Chapter 13
+Backup for Chapter 13 :
+
+Rahala and Kauravas have reached Hastinapur and Rahala has become Dhritarashta's favorite son also as he does a lot of intelligent work here and appreciates his jokes. Show some dialogues. Vyasa starts suspecting Rahala but is convinced Rahul is dead. Bhishma keeps regularly training Kauravas and Rahala falls behind as he is not as physically fit as others are. Ugra keeps on forgetting Rahala and they keep on giving rain check on the Machiatto coffee. Days pass and sooner they find that they get a letter from Indraprastha. It is signed by Takshaka and thre is a message that Takshaka demands the prisoner Chedi as he is a king or else there would be a war. Dhritarashtra disagree and he says how can they have a right on Kuru prisoner. There is an overall tension where Bhishma asks them to release Chedi but no one else agrees. 
+Lord Krishna's messenger also come and stresses that they should not release Chedi as he literally broke the moral conducts in Indraprastha's house and insulted Virata and Suyodahana also. However Virata doesnt want to release Chedi as he knows that he will eventually die at the hand of Krishna doing some stupidity and that will trigger another war which Hastinapur would have to participate and he is tired of wars. This he shares with Rahala. 
+Chedi is in the prison and Suyodhana and Shakuni think that they shud assasinate him and replace him with one of their brothers and release that to which Rahala says why assasinate , just send some brother instead. This is a funny situation and Rahala tells them what is it with you guys and assasination when you can perfectly capture a person and bore him with Dhritarastha joke practice everyday. Everyone agrees and they decide Rahala to send as Prince Chedi (or decoy) to Takshaka's kingdom as they know that Takshaka has decided to protect Chedi by keeping him in his kingdom only and let him do work at home for his kingdom from Indraprastha. As even Takshaka is afraid if Chedi gets killed. There is a consensus to make Rahul or Rahala as Chedi as he is the king of disguises having mastered so many disguises in just 12 chapters. Rahul feels thre is no choice and is reluctant to go back but its decided for that. The letter is sent to Takshaka and there is a reply that Takshaka has agreed for the peace and has asked them to send Rahala to one of the 
+
+
+Until Sage Vyasa, refusing to accept absolute narrative defeat, stepped into the center of the courtyard with one final, deeply desperate plot manipulation. 
+
+"Family!" Vyasa declared loudly, holding his hands out with an incredibly forced, highly artificial smile. "Before the Hastinapur caravan departs, I must insist on a formalized cultural exchange to truly seal this wonderful alliance! We should host a friendly, entirely non-violent game of Chausar at the Hastinapur palace!"
+
+The word *Chausar* (dice) immediately sucked all the air out of my lungs. 
+
+"A game of dice?" Suyodhana asked, looking slightly bored. "I suppose it could be a decent team-building exercise."
+
+"I would be highly interested," Shakuni suddenly stepped forward, his raspy voice cutting through the evening air. He pulled a magical bone dice from his sleeve to aggressively twirl it between his fingers. He didn't look at Yudhishthira; he looked directly at the ground, but a deeply unsettling, highly calculating smile spread across his face. 
+
+My stomach plummeted. Shakuni wasn't interested in team-building. Shakuni was interested in utilizing his illegal bone-franchise to bankrupt an entire corporate empire in an afternoon. 
+
+"Chausar?" Yudhishthira practically gasped, aggressively pushing his glasses up his nose. The deeply responsible, highly ethical administrator suddenly had a terrifying, profoundly un-corporate gleam in his eye. "I... I am incredibly fond of statistical probability games! The mathematical variables are thrilling! We should depart immediately!"
+
+"We will do no such thing," Draupadi stepped smoothly in front of her husband, her CEO voice radiating absolute, unyielding authority. "We have Q4 quarterly reports to finalize. We appreciate the invitation, Grandfather Vyasa, but our board of directors will need to properly evaluate the strategic implications of a gambling summit. We will get back to you."
+
+Vyasa's eye twitched violently, but Yudhishthira, crumbling instantly under his CEO's pressure, reluctantly nodded. 
+
+As the Kuru family began heavily preparing their chariots to return to Hastinapur the next morning, I stood near the edge of the dark, incredibly luxurious Farmhouse gardens. I was deeply suspicious. The Maya Mahal disaster had been avoided, but Vyasa had successfully planted the seeds for the infamous gambling match that would eventually strip Draupadi of her dignity and send the Pandavas into a grueling thirteen-year exile. 
+
+The plot was getting significantly more dangerous. I couldn't stop it from the inside as Rahala. I needed a high-level strategic intervention. 
+
+I found Lord Krishna standing quietly near the edge of the infinity pool, looking out into the dense, ancient forest. 
+
+He didn't turn around as I approached in my heavy Kaurava silks, but he spoke softly. 
+
+"You are carrying the weight of an entire timeline on your shoulders, Rahul," Krishna murmured, his voice sending a wave of absolute, terrifying peace through my exhausted corporate soul. "That is an incredibly heavy burden for a logistics manager."
+
+"Lord," I whispered, bowing my head. "The timeline is violently correcting itself. Vyasa just initiated the dice game plot. Shakuni is going to use his loaded dice to destroy the Pandavas. I have to stop them from accepting the invitation."
+
+Krishna finally turned around. His dark eyes met mine, carrying the infinite, unfathomable depth of the universe. 
+
+"Your real battle in this narrative is not with Suyodhana or Shakuni," Lord Krishna said gently. "Your real battle is with Sage Vyasa. You are trying to frantically overwrite the greatest literary architect in history. But you must understand, Rahul... you should respect his plan. The inevitable outcome of his narrative is ultimately far better for the spiritual evolution of this world than a regional coffee monopoly."
+
+I stared at him, my heart aching. "But the war... the destruction..."
+
+"Do not try to aggressively control the variables," Krishna smiled warmly, placing a hand on my shoulder. The sheer divine pressure of his touch completely eradicated all my anxiety in a single glowing instant. "Let it go, Rahul. The universe does not require a project manager."
+
+I closed my eyes, a single tear escaping my highly itchy fake beard. 
+
+"Someday," Lord Krishna continued softly, "I will share some proper, highly structured wisdom with you regarding this exact topic. I will provide it in the form of a text."
+
+My eyes snapped open. I stared at the Supreme Being in pure shock. 
+
+"The Gita..." I whispered reverently. 
+
+Lord Krishna’s magnificent smile widened into something incredibly profound. "Yes. Though I assure you, Rahul, there is a very massive difference between reading it on a modern screen, and directly listening to me speak it on the battlefield."
+
+I broke down. I didn't care about my Kaurava disguise or my corporate stoicism. I fell to my knees, aggressively weeping, completely overwhelming my emotional thresholds. I surrendered. 
+
+I realized then that I couldn't stop the Mahabharata. I wasn't supposed to stop the Mahabharata. Whatever cosmic, narrative flow had to happen, would happen. 
+
+I wiped my eyes, aggressively readjusting my fake mustache. 
+
+I stood back up, offering the Lord one final, incredibly deep bow. I would return to Hastinapur. I would resume my highly confusing designated duties as Prince Rahala. 
+
+I would let Sage Vyasa's terrifying narrative play out. I would no longer actively obstruct the plot. 
+
+I was officially offline. Let the dice roll.
+
